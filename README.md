@@ -8,3 +8,8 @@ Details---> Our Project revolves around boosting the fitness activites awareness
 
 
 ![Screenshot 2024-03-09 010526](https://github.com/Kushan-shah/FITNESS-AK/assets/143536915/2c86b7b7-a0d2-4689-9213-8bedf8eb3bf4)
+![Screenshot 2024-03-09 010436](https://github.com/Kushan-shah/FITNESS-AK/assets/143536915/fe0773ef-17af-4d49-9ae1-f06e3238150c)
+![Screenshot 2024-03-09 010540](https://github.com/Kushan-shah/FITNESS-AK/assets/143536915/835719c2-fa5b-423f-ba42-99c9014fe182)
+![Screenshot 2024-03-09 010545](https://github.com/Kushan-shah/FITNESS-AK/assets/143536915/e5a1f1fa-e64a-46c2-aa2d-fcc5606f75c2)
+![Screenshot 2024-03-09 010550](https://github.com/Kushan-shah/FITNESS-AK/assets/143536915/57147b21-fdcd-43c0-a5fe-46bdee76f457)
+
